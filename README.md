@@ -1,5 +1,5 @@
 For Consultations: https://www.upwork.com/freelancers/~018918e835fbfbd05b?mp_source=share | Let's do Some Great Things Together! 💪
-- 👋 Greetings. I’m Ali J. Rizvi! (https://alijrizvi.wixsite.com/dataportfolio)
+- 👋 Greetings. I’m Ali J. Rizvi! | Portfolio: https://alijrizvi.wixsite.com/dataportfolio
 - 😄 Pronouns: He/Him
 - 👀 I’m interested in Data Science, Machine Learning, and Generative AI.
 - 🌱 I recently earned my Master's Degree in Data Science!
